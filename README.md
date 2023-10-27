@@ -1,20 +1,14 @@
-**文化研究（** Cultural Studies **）**
+#**文化研究（** Cultural Studies **）**
 
 在这里我并不想列长长的书单，就给一个路径。如果要全列出来，大概所有人文社科都能包含进来：美学、文艺学、哲学、批判传播学甚至是政治经济学……此外，我会在每个资料下边标明一些简短的评价。  
-当然，最早做文化研究的是一批文学学者，所以西方文论能看多少看多少，都算是前置知识。所有提到的书籍和视频都可以在市面上找到，较难寻找的论文和书籍都放在附录中。
-
+当然，最早做文化研究的是一批文学学者，所以西方文论能看多少看多少，都算是前置知识。所有提到的书籍和视频都可以在市面上找到，较难寻找的论文和书籍都放在附录中。  
 欢迎来到我认为仍然存在生机，仍然可以携带批判性进入现实的领域。
 
-**初识**** Cultural Studies**（简易版）
-
-bilibili 《西方文论课程全集 共28集 2019年秋》 杨宁
-
-Link：
-
-[20191218 文化研究（1）\_哔哩哔哩\_bilibili](https://www.bilibili.com/video/BV19J411S7Us?p=27&vd_source=05a3ec2619eb126343cba951dcbea62a)
-
-[20191218 文化研究（2）\_哔哩哔哩\_bilibili](https://www.bilibili.com/video/BV19J411S7Us?p=28&vd_source=05a3ec2619eb126343cba951dcbea62a)
-
+##**初识** Cultural Studies（简易版）  
+bilibili 《西方文论课程全集 共28集 2019年秋》 杨宁  
+Link：  
+[20191218 文化研究（1）\_哔哩哔哩\_bilibili](https://www.bilibili.com/video/BV19J411S7Us?p=27&vd_source=05a3ec2619eb126343cba951dcbea62a)  
+[20191218 文化研究（2）\_哔哩哔哩\_bilibili](https://www.bilibili.com/video/BV19J411S7Us?p=28&vd_source=05a3ec2619eb126343cba951dcbea62a)  
 Ps：看完你大概要知道"三个爷爷"和伯明翰学派想干嘛
 
 笔记：
