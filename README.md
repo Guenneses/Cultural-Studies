@@ -9,7 +9,7 @@ bilibili 《西方文论课程全集 共28集 2019年秋》 杨宁
 Link：  
 [20191218 文化研究（1）\_哔哩哔哩\_bilibili](https://www.bilibili.com/video/BV19J411S7Us?p=27&vd_source=05a3ec2619eb126343cba951dcbea62a)  
 [20191218 文化研究（2）\_哔哩哔哩\_bilibili](https://www.bilibili.com/video/BV19J411S7Us?p=28&vd_source=05a3ec2619eb126343cba951dcbea62a)  
-Ps：看完你大概要知道"三个爷爷"和伯明翰学派想干嘛
+> Ps：看完你大概要知道"三个爷爷"和伯明翰学派想干嘛
 
 笔记：  
 文化研究 (跨学科性）  
